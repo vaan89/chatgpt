@@ -5,3 +5,6 @@
 群内应用完全免费 包括chatgpt小程序、chatgpt客户端、chatgpt免登陆免🪜版、siri快捷指令等
 进群加群主微信 为保证社群质量为会员制
 
+![image](https://github.com/vaan89/chatgpt/blob/main/WechatIMG111.jpeg)
+![image](https://github.com/vaan89/chatgpt/blob/main/WechatIMG112.jpeg)
+![image](https://github.com/vaan89/chatgpt/blob/main/WechatIMG113.jpeg)
